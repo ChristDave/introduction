@@ -1,1 +1,3 @@
 # introduction
+Graduated in the applied bachelor's program in Software Engineering, management and entrepreneurship option at the University of Ottawa, I have years of experience in various fields including customer service, programming and web development.
+With my solid computer experience, my effective bilingualism and my undeniable determination, I find it easy to provide solutions to each problem, which demonstrates my ability to show resilience in the face of future situations in my professional life.
